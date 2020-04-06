@@ -2,7 +2,7 @@
 
 # This Erotica Does Not Exist
 
-[https://erogenerator.gitlab.io/](https://erogenerator.gitlab.io/)
+[https://erogenerator.github.io/](https://erogenerator.github.io/)
 
 ### What is this?
 
