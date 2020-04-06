@@ -1,3 +1,5 @@
+**DISCLAIMER: This page contains potentially NSFW, erotic content.**
+
 # This Erotica Does Not Exist
 
 [https://erogenerator.gitlab.io/](https://erogenerator.gitlab.io/)
